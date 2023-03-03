@@ -25,7 +25,7 @@
     Biswajit Swain
     7735771266
     mr.rintu01@gmail.com
-    MY RESUME- <https://drive.google.com/file/d/1RejfDWzdVZiNco0Z34bfI5mpV22Louzm/view?usp=share_link>
+    MY RESUME- <https://drive.google.com/file/d/1knN0galvXfpjQpMr6D1xkEHDQnch4lvY/view?usp=share_link>
     MY GITHUB PROFILE - <https://github.com/RINTU5500U>
     MY PORTFOLIO - <https://storied-panda-7f102a.netlify.app>
 
